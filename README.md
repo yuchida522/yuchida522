@@ -4,7 +4,7 @@
   Currently SWE @ Tessitura<br>
   I am a dog mom to a bordier collie rescue :dog: <br>
   when I am not coding or playing violin, I am exploring with the outdoors 🏃🏻‍♀️🚴🏻‍♀️⛺<br>
-  Talk to me about your current projects, music, and career transitions
+  Talk to me about your current projects, music, and making a career change
   
   <h2>Connect with me 💬</h2>
   <a href="https://www.linkedin.com/in/yuri-uchida">LinkedIn</a> | <a>Website</a> (coming soon)
